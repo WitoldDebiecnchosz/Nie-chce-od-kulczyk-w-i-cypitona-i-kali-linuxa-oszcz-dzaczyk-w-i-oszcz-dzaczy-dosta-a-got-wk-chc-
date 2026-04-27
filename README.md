@@ -1,0 +1,1 @@
+# Nie-chce-od-kulczyk-w-i-cypitona-i-kali-linuxa-oszcz-dzaczyk-w-i-oszcz-dzaczy-dosta-a-got-wk-chc-
